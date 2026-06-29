@@ -1,4 +1,4 @@
-
+welcome to bloxburg Script premium offers the most advanced welcome to bloxburg Script, with auto-farm and no clip. Perfect for dominating any match.
 
 
 
